@@ -1,1 +1,0 @@
-The answers to Option 1 and Option 2 can be found in the in the relative .docx files in the SectionD folder.
